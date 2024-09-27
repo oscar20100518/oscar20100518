@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning C++ and Python
 - 💞️ I’m looking to collaborate on 🤔，I don't know
 - 📫 How to reach me :use qq or Wechat
-- 😄 Pronouns: 
+- 😄 Pronouns: dududadududa
 - ⚡ Fun fact: oi!
 
 <!---
